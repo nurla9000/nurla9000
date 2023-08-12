@@ -2,15 +2,8 @@ nurla - make mods for cod clients that are decent
 
 try them out, use there assets, do whatever idc
 
-- (THIS IS MY NEW ACCOUNT, NURLAMODS IS NO LONGER IN USE!!!!)
-- (THIS IS MY NEW ACCOUNT, NURLAMODS IS NO LONGER IN USE!!!!)
-- (THIS IS MY NEW ACCOUNT, NURLAMODS IS NO LONGER IN USE!!!!)
-- (THIS IS MY NEW ACCOUNT, NURLAMODS IS NO LONGER IN USE!!!!)
-- (THIS IS MY NEW ACCOUNT, NURLAMODS IS NO LONGER IN USE!!!!)
 
-
-
-follow me 
+#follow me 
 
 twitter @creedlover9000
 youtube.com/nurla
