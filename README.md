@@ -1,16 +1,13 @@
-nurla - make mods for cod clients that are decent 
+Former cod modder (sometimes im still active)
 
-try them out, use there assets, do whatever idc
+Know for mw2a - now know for iw4sb (sandbox)
 
+Add me on discord if you need help on anything modding related or want to collab on something - @codonline
 
-# follow me 
+# My links
 
-twitter @creedlover9000
-youtube.com/nurla
-discord: https://discord.gg/BDwdNNzNDa
-
-
-# image i like lol 
+https://linktr.ee/nurla9000
 
 
-  ![516263b48e4fd3422b56336aed0e5254e5cc0e10_full](https://github.com/nurla9000/nurla9000/assets/140421367/23601aa1-c207-4f07-9513-9a2e8f9b719e)
+
+![cardicon_iss](https://github.com/nurla9000/nurla9000/assets/140421367/db4725bc-44e4-433c-b2ed-e96643c736eb)
