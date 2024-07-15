@@ -1,12 +1,13 @@
-Former cod modder (sometimes im still active)
+cod modder - very lazy, but i get the job done
 
-Know for mw2a - now know for iw4sb (sandbox)
+## me
+know for mw2a - now know for iw4sb (sandbox)
+i test and contribute to many things
 
-Add me on discord if you need help on anything modding related or want to collab on something - @codonline
-
-# My links
-
+## my links
 https://linktr.ee/nurla9000
+add me on discord if you need help on anything modding related or want to collab on something - @codonline
+
 
 
 
