@@ -1,12 +1,7 @@
-cod modder - very lazy, but i get the job done
 
-## me
-know for mw2a - now know for iw4sb (sandbox)
-i test and contribute to many things
-
-## my links
+## how to contact me
 https://linktr.ee/nurla9000
-add me on discord if you need help on anything modding related or want to collab on something - @codonline
+discord - @codonline
 
 
 
